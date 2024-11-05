@@ -3,7 +3,6 @@
 - 🌱 I’m a Digital Humanist 
 - 💞️ I’m looking to collaborate on innovative and digital projects
 - 📫 How to reach me: grazia.solenne99@gmail.com
-- 😄 Pronouns: grace_sole
   
 
 <!---
